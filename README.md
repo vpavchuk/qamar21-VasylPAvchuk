@@ -1,1 +1,0 @@
-# qamar21-VasylPAvchuk
